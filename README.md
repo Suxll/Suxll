@@ -14,6 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-大家好，我叫苏玲俐，来自福建。
+大家好，很高兴与你们相识。
+
+我叫苏玲俐，来自福建，爱好读书听歌。
 
 “我不会试图去摘月亮，我要月亮奔我而来。”
